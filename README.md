@@ -1,0 +1,2 @@
+- Please download the PDF file to view the simulation content.
+- Open it with Adobe Acrobat Reader or another fully-featured PDF viewer.
